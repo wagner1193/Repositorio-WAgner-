@@ -1,3 +1,3 @@
 # Tarea 2
 
-! (https://rstudio.cloud/project/2576480)
+* mo me voy a rendir aunque sea tarde pero esta tarea la hago
