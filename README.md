@@ -1,3 +1,3 @@
 # Tarea 2
-
-* mo me voy a rendir aunque sea tarde pero esta tarea la hago
+Ckari qye esti es ki qye entendi de ka tarea y asi me qyedo 
+![Esto de la higrología Río Banano y Estrella](C:\Users\wagne\Dropbox\Capturas de pantalla)
